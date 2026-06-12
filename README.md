@@ -1,2 +1,2 @@
 # sonosefever.github.io
-<t>Sonosefever<t.
+<t>Sonosefever<t>
